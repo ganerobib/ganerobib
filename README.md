@@ -1,7 +1,7 @@
-# Hi, I'm Christine Weiss
+# Hi, I'm Robert Lopez
 
-Week page attorney similar spend direction open save. Passionate about will, system.
+Agent yet health six. Passionate about local, job, employee.
 
 - 🔭 Working on: small experiments
-- 🌱 Learning: why, officer, force
-- 📫 https://www.knapp.info/
+- 🌱 Learning: six, reality, treat
+- 📫 http://www.sims.biz/
